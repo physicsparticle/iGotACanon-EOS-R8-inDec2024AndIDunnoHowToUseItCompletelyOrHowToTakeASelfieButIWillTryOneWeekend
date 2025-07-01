@@ -1,0 +1,1 @@
+# iGotACanon-EOS-R8-inDec2024AndIDunnoHowToUseItCompletelyOrHowToTakeASelfieButIWillTryOneWeekend
