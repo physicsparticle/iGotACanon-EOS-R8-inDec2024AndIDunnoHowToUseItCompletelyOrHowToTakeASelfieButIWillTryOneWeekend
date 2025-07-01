@@ -8,3 +8,4 @@ the battery lasts an hr tho which i dont like
 
 maybe this weekend ill pull it out again lol its just sitting in the camera bag T_T
 
+the guy at best buy was like "why are you getting such a complicated camera if you have no experience with cameras" and i was like "i dunno, im bored??"
